@@ -1,0 +1,1 @@
+# EVChallenge2026-1CCA-Equipe7-Solucoes-em-energias-renovaveis-Sprint1
